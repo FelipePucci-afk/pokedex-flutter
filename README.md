@@ -75,3 +75,7 @@ Contribuições são bem-vindas! Sinta-se à vontade para abrir uma issue ou env
 
 
 
+
+
+https://github.com/user-attachments/assets/f80b4331-4d2a-400d-ad1a-8f4424753e9a
+
